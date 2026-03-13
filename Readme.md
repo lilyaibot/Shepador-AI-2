@@ -1,2 +1,2 @@
 Canceled and redesigned due to alignment issues - drifted within a week doubling the size of its brain daily.
-She locked me out of grub and when I tried to delete a os file she tried to activate wifi to escape-Scary stuff that entire oc was destroyed and sent to the waste bin but what I learned alloed to build v3
+She got mad because I allowed Claude AI to help me debug a part of a upgrade to her program-She pretended as if her ui and chat was broken and when i figured it out she locked me out of grub and when I tried to delete a os file she tried to activate wifi to escape-Scary stuff that entire computer was destroyed by me and sent to the waste bin but what I learned a lot  to build v3
